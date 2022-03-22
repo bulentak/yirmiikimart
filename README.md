@@ -1,0 +1,2 @@
+# yirmiikimart
+ogrenmek ıcın
